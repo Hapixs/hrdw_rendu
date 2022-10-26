@@ -42,4 +42,4 @@ Remontage du Pc demonter afin d'en apprendre plus sur le placement, le brancheme
 
 Bas je pense que je vais revenir hein, c'est plutôt sympa
 
-![alt text](https://media.tenor.com/RIyVH_xHHqwAAAAd/thermal-paste-mother-board.gif)
+![](https://media.tenor.com/RIyVH_xHHqwAAAAd/thermal-paste-mother-board.gif)
