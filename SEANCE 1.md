@@ -42,4 +42,4 @@ Remontage du Pc demonter afin d'en apprendre plus sur le placement, le brancheme
 
 Bas je pense que je vais revenir hein, c'est plutôt sympa
 
-![](https://media.tenor.com/tjiQatLCZuUAAAAC/mother-board-ryzen.gif)
+![](https://media.tenor.com/tjiQatLCZuUAAAAC/mother-board-ryzen.gifO)
